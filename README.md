@@ -32,7 +32,3 @@
 ## 📫 Connect with Me
 
 You can connect with me via email at [nataliasofiaroni@gmail.com](mailto:nataliasofiaroni@gmail.com)
-# myportfolio
-# greatportfolio
-# greatportfolio
-# myportfolio
